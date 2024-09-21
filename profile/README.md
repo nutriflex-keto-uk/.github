@@ -17,14 +17,10 @@ NutriFlex Keto is a carefully formulated supplement that combines the benefits o
 # Key Benefits of NutriFlex Keto
 
 1.	Supports Ketosis: Helps the body enter and maintain a state of ketosis, where fat is burned for fuel.
-2.	
-3.	Boosts Energy: Provides sustained energy levels, reducing fatigue and improving stamina throughout the day.
-4.	
-5.	Enhances Fat Loss: Promotes efficient fat burning by utilizing stored body fat for energy.
-6.	
-7.	Suppresses Appetite: Helps control cravings and hunger, making it easier to stick to a low-carb diet.
-8.	
-9.	Improves Mental Clarity: Supports brain function, improving focus and cognitive performance.
+2.	Boosts Energy: Provides sustained energy levels, reducing fatigue and improving stamina throughout the day.
+3.	Enhances Fat Loss: Promotes efficient fat burning by utilizing stored body fat for energy.
+4.	Suppresses Appetite: Helps control cravings and hunger, making it easier to stick to a low-carb diet.
+5.	Improves Mental Clarity: Supports brain function, improving focus and cognitive performance.
 
 # How NutriFlex Keto Works
 
